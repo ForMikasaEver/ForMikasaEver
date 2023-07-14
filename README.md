@@ -1,6 +1,6 @@
 Hi! I'm formikasaever😊 
 
-A Block-Chain engineering Student From ChengDu 🧑‍💻
+A Block-Chain Engineering Student From ChengDu 🧑‍💻
 
 
 
